@@ -8,4 +8,8 @@ organizaçâo e compartilhamento dos meus projetos desenvolvidos
 ### voce entrar comigo 📫
 
 ketellyn.alves.santos@ecola.pr.gov.br
+
 @ketellynheloize
+
+
+![](https://media.tenor.com/sY426q87UKcAAAAC/frustrated-upset.gif)
